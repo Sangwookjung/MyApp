@@ -1,3 +1,3 @@
 ### Project explanation File.
 Sangwook, Jung
-i hate it!
+i hate and also like it!
